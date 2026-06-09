@@ -1,4 +1,4 @@
-
+new Scripts for hooked offers the most advanced hooked Script, with auto-collect and private server access. Perfect for dominating any match.
 
 
 
